@@ -1,1 +1,1 @@
-Why you viewing this twin 💔
+Why you viewing this twin. 💔
